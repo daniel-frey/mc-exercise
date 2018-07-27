@@ -4,16 +4,10 @@ Pop-up bespoke crucifix venmo hoodie labore microdosing organic sriracha live-ed
 
 Brunch raclette yr af YOLO subway tile vexillologist viral. Synth reprehenderit drinking vinegar mumblecore, bicycle rights id portland consequat. Listicle raw denim gochujang minim bespoke hoodie. Trust fund messenger bag try-hard snackwave direct trade, whatever ut retro kickstarter kale chips pour-over deep v migas.
 
-Sint iceland butcher mlkshk adipisicing, reprehenderit tofu intelligentsia nulla lumbersexual church-key. Do cray quis chillwave, food truck laborum enim green juice veniam. Vaporware cred meggings artisan thundercats godard cold-pressed ullamco post-ironic vexillologist reprehenderit. Anim pinterest tote bag authentic adaptogen photo booth post-ironic humblebrag vinyl. Coloring book microdosing mlkshk tbh cronut, fanny pack twee intelligentsia. Proident bicycle rights try-hard, reprehenderit seitan in church-key taiyaki thundercats plaid.
-
 Hot chicken venmo veniam, eu kitsch anim before they sold out incididunt. Knausgaard succulents everyday carry ut quinoa chia. Street art nisi bitters shaman gentrify farm-to-table mollit normcore cloud bread fashion axe twee humblebrag nulla. Organic tumblr cornhole health goth lo-fi forage tumeric pug. Esse schlitz shoreditch vegan roof party activated charcoal. Poke chambray four loko kickstarter lo-fi, edison bulb jianbing chillwave pok pok.
 
 Forage 3 wolf moon pop-up fugiat officia poke green juice. Everyday carry slow-carb mustache lyft artisan four dollar toast nulla et keytar dolore adipisicing. Neutra mumblecore kinfolk laborum live-edge echo park tumblr hot chicken twee locavore pabst. Hexagon migas franzen chartreuse heirloom meggings. Tousled iceland proident fixie, brooklyn tattooed dolor ex blue bottle nisi qui street art.
 
 Oh. You need a little dummy text for your mockup? How quaint.
 
-I bet you’re still using Bootstrap too…
 
-Hot chicken venmo veniam, eu kitsch anim before they sold out incididunt. Knausgaard succulents everyday carry ut quinoa chia. Street art nisi bitters shaman gentrify farm-to-table mollit normcore cloud bread fashion axe twee humblebrag nulla. Organic tumblr cornhole health goth lo-fi forage tumeric pug. Esse schlitz shoreditch vegan roof party activated charcoal. Poke chambray four loko kickstarter lo-fi, edison bulb jianbing chillwave pok pok.
-
-raccoon squad gang.
