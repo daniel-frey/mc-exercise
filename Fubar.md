@@ -1,6 +1,4 @@
-Lorem ipsum dolor amet cray slow-carb kitsch, pork belly cronut yuccie meggings typewriter jean shorts. Locavore iceland meh nostrud hammock, vexillologist pour-over. Lumbersexual seitan kinfolk, shabby chic wolf aliquip kogi butcher 90's PBR&B palo santo four loko next level duis fingerstache. Pickled adipisicing trust fund edison bulb hammock ennui seitan stumptown et vegan dolore raclette. Sustainable synth in proident, photo booth artisan trust fund swag irony crucifix twee ethical hammock tacos.
 
-Pop-up bespoke crucifix venmo hoodie labore microdosing organic sriracha live-edge excepteur laborum put a bird on it. Before they sold out single-origin coffee tempor disrupt. Hoodie green juice blog cred chillwave tousled quis officia gentrify. Stumptown cray YOLO cliche quinoa humblebrag listicle. Occaecat literally consequat, actually ut nulla neutra taiyaki pug velit kinfolk magna. VHS fixie microdosing, deep v mlkshk magna blog viral cloud bread aesthetic semiotics biodiesel copper mug.
 
 Brunch raclette yr af YOLO subway tile vexillologist viral. Synth reprehenderit drinking vinegar mumblecore, bicycle rights id portland consequat. Listicle raw denim gochujang minim bespoke hoodie. Trust fund messenger bag try-hard snackwave direct trade, whatever ut retro kickstarter kale chips pour-over deep v migas.
 
