@@ -11,9 +11,6 @@ Forage 3 wolf moon pop-up fugiat officia poke green juice. Everyday carry slow-c
 Oh. You need a little dummy text for your mockup? How quaint.
 
 
-<<<<<<< HEAD
 raccoon squad gang.
 
 let's mess this this thing up. 
-=======
->>>>>>> 909e9e3b6dfca48776476b4b2b3bc525c3f3ef15
